@@ -1,5 +1,4 @@
 # 💫 About Me:
-Hello there i asoume you are spying on me !! | True && false . < anyway {<br>let me introduce  my self, you can call me by my Nick name which is Alzaabi<br>im based in UAE (Student in AAU) exactly BCS which is computer science<br>Working on CEH OSCP GIAC EJPT ATM<br>}<br>
 
 
 ## 🌐 Socials:
